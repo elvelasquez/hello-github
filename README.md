@@ -1,4 +1,3 @@
-hello-github
-============
+11/11/2014 Applying for different things when I realize.
 
-about time I began one of these
+It's about time I began one of these
