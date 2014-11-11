@@ -1,3 +1,6 @@
-11/11/2014 Applying for different things when I realize.
+hello-github
+============
+I hope to to be using his a lot more in the future :)
 
-It's about time I began one of these
+
+about time I began one of these
